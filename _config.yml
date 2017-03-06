@@ -1,6 +1,6 @@
 # Site Settings
-title:               "Mellonise Down Under"
-tagline:             "yet another travel blog ..."
+title:               Mellonise Down Under
+tagline:             yet another travel blog ...
 description:
 baseurl:            "/blog"
 url:                "https://phgo.github.io"
@@ -14,11 +14,11 @@ author:
   facebook:          "100009724774686"
   linkedin:          "philipp-göllner-2b086a71"
 navigation:
-- title: "Was soll das?"
+- title: Was soll das?
   url: /about
 - title: Archiv
   url: /writing
-- title: Voll(Kontakt)
+- title: Kontakt
   url: /contact
 
 paginate:            5
