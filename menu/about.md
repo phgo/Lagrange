@@ -1,5 +1,17 @@
 ---
 layout: page
-title: About
+title: Was soll das?
 ---
-Lagrange is a minimalist Jekyll. It is intended to have a clean, content focused interface for blog writing.
+Urlaub zu dritt in gemeinsamer Elternzeit.
+
+* 12.03. Dresden -> Frankfurt
+* 13.03. Frankfurt -> Adelaide 
+* 18.03. Pickup Camper in Adelaide
+* 13.05. Dropoff Camper in Cairns
+* 16.05. Cairns -> Brisbane 
+* 18.05. Brisbane -> Singapur
+* 23.05. Singapur -> Frankfurt
+
+Für dazwischen müssen wir uns dann halt noch was einfallen lassen ...
+
+Optische Coolhaftigkeit thanks to https://lenpaul.github.io/Lagrange/
