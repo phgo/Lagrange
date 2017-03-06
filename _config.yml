@@ -22,7 +22,7 @@ navigation:
   url: /contact
 
 paginate:            5
-disqus:              "https://https-phgo-github-io-blog.disqus.com"
+disqus:              "https-phgo-github-io-blog"
 
 # Build settings
 markdown:            kramdown
