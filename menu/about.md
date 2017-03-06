@@ -14,4 +14,4 @@ Urlaub zu dritt in gemeinsamer Elternzeit.
 
 Für dazwischen müssen wir uns dann halt noch was einfallen lassen ...
 
-Optische Coolhaftigkeit thanks to https://lenpaul.github.io/Lagrange/
+Optische Coolhaftigkeit thanks to [Lagrange Jekyll Theme](https://github.com/LeNPaul/Lagrange)
