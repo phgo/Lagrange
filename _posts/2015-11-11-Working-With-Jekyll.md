@@ -2,7 +2,7 @@
 layout: post
 title: "Working With Jekyll"
 categories: journal
-tags: [documentation,sample]
+tags: []
 image:
   feature: bag.jpg
   teaser: bag-teaser.jpg
