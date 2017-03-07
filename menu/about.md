@@ -11,6 +11,7 @@ Urlaub zu dritt in gemeinsamer Elternzeit.
 * 16.05. Cairns -> Brisbane 
 * 18.05. Brisbane -> Singapur
 * 23.05. Singapur -> Frankfurt
+* 24.05. Frankfurt -> Dresden
 
 Für dazwischen müssen wir uns dann halt noch was einfallen lassen ...
 
