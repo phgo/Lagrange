@@ -59,7 +59,7 @@ Wäre der Objektivwechsel etwas schneller vonstatten gegangen, hätten wir diese
 ![Koala 2](https://phgo.github.io/blog/images/post5/asset-13.jpg)
 Wenn man denn schonmal den Blick nach oben gerichtet hat, entdeckt man direkt noch mehr von den Kumpels.
 ![Ameisenbär](https://phgo.github.io/blog/images/post5/asset-16.jpg)
-Ein Ameisenbär?
+Ein Ameisenigel?
 ![Papagei ](https://phgo.github.io/blog/images/post5/asset-25.jpg)
 Ich lehne mich mal nicht zu weit aus dem Fenster und bleibe bei "Papagei". Die Vögel werden hier zusammen mit ein paar Enten direkt am Campingplatz angefüttert. Etwas makaber: zwei Meter vor Melle liegen die Überreste eines überfahrenen Piepmatzes.
 ![Koala 3](https://phgo.github.io/blog/images/post5/asset-26.jpg)
