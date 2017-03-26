@@ -9,6 +9,8 @@ image:
   credit:
   creditlink:
 ---
+**Update: jetzt auch mit Kängurus.**
+
 Hallo mal wieder. Wiederholt wurden an dieser Stelle mehrere Zeilen Text erstellt und anschließend wieder gelöscht. Die Gedanken müssen möglicherweise noch ein wenig reifen! 
 Damit heute noch irgendetwas live geht, fasse ich mich mal sehr kurz.
 * Wir sind inzwischen sehr gut angekommen im Urlauberdasein. Es ist schwer vorstellbar, dass wir vor zwei Wochen noch in Dresden waren.
@@ -46,7 +48,8 @@ Eigentlich hatten wir den Herrn gebeten, das Schiff zu fotografieren, dass hier 
 Das sind diese zwölf Apostel. Es sind übrigens keine zwölf ... 
 ![Great Ocean Road](https://phgo.github.io/blog/images/post5/asset-24.jpg)
 Wenn man einfach mal kurz an den Rand fährt und direkt aus dem Auto (Rechtslenker!) solche Aussichten knipsen kann, dann hat man bei der Wahl des Reiseziels wahrscheinlich etwas richtig gemacht.
-
+![Regenwald](https://phgo.github.io/blog/images/post5/asset-29.jpg)
+Hier gibt es auch mächtig große Bäume.
 # Wildlife 
 ![Vogel](https://phgo.github.io/blog/images/post5/asset-8.jpg)
 Vermutlich ein Kurzschwanzsturmtaucher. 
@@ -65,6 +68,9 @@ Ich lehne mich mal nicht zu weit aus dem Fenster und bleibe bei "Papagei". Die V
 ![Koala 3](https://phgo.github.io/blog/images/post5/asset-26.jpg)
 Ebenfalls direkt auf dem Gelände des Campingplatzes wohnen auch noch ein paar Koalas. Weil die nunmal so niedlich sind, dürfen es dann hoffentlich auch ein paar mehr Bilder sein.
 ![Koala 4](https://phgo.github.io/blog/images/post5/asset-27.jpg)
+![Kaeng ](https://phgo.github.io/blog/images/post5/asset-30.jpg)
+![Kaeng 2](https://phgo.github.io/blog/images/post5/asset-31.jpg)
+Es gibt sie also doch auch in der nicht überfahrenen Ausführung. Diese Kängurus besitzen magische Kräfte: sie können langweiligen Rasen in kleine grünschwarze Kugeln verwandeln. Scheint mir eine sehr sinnvolle Fähigkeit zu sein ... Auf dem Campingplatz kamen die Zauberer des nächstens direkt an die Autos heran. 
 # Rest (hauptsächlich Menschen)
 ![Fishnchips](https://phgo.github.io/blog/images/post5/asset-4.jpg)
 Massiv leckere Fish and Chips in Portland.
