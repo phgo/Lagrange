@@ -37,7 +37,6 @@ Heute haben wir noch weitere Gegend auf der Mornington Peninsula besichtigt. Da 
 # Vermischtes
 Da es diesbezüglich Nachfragen gab: diese Wirbelsturm Debbie Angelegenheit spielte sich schätzungsweise 2500km nördlich von uns ab. In 4-5 Wochen können wir dann möglicherweise noch letzte Sturmschäden besichtigen. 
 
-Es gab jüngst einen Tag, an dem wir kein einziges goto gemacht haben. Ich habe aber schon wieder vergessen, was wir da gemacht haben. 
+Es gab jüngst einen Tag, an dem wir kein einziges Foto gemacht haben. Ich habe aber schon wieder vergessen, was wir an diesem Tag stattdessen gemacht haben. 
 
 Morgen geht es weiter nach Phillip (die schreiben das echt so!) Island. Leider sieht die Wetterprognose eher mau aus.
-
