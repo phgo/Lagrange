@@ -30,7 +30,7 @@ Die letzten beiden Tage verbrachten wir in den Blue Mountains. Besonders blau sa
 ![Bild](https://phgo.github.io/blog/images/post10/asset-17.jpg)
 Dazu nur so viel: Wasserfälle können die auf Island echt besser, die Sandsteinfelsen sind hier hingegen Spitzenklasse.
 
-#Vermischtes
+# Vermischtes
 * Der Kilometerstand hat die 3000 durchstoßen.
 * Gerade eben wurden wir auf der Rest Area von einem älteren Herren angesprochen, dem wir bereits auf dem Campingplatz in Melbourne begegnet waren. Er hat uns angeboten, uns in Brisbane den Tourguide zu mimen. Mal sehen, ob das klappt.
 * Von den mitgeführten Serien/Filmen haben wir bislang genau 0 Minuten geschafft.
