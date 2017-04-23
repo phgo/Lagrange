@@ -32,7 +32,7 @@ Die zugehörige Krabbe war sicher mindestens so groß wie ein VW Käfer! Echt ge
 ![Bild](https://phgo.github.io/blog/images/post12/asset-7.jpg)
 ![Bild](https://phgo.github.io/blog/images/post12/asset-8.jpg)
 ![Bild](https://phgo.github.io/blog/images/post12/asset-9.jpg)
-Aus Angst vor einem Lynchmord und jeder Menge Hohn habe ich mich mit meinem Spielzeug-Tele (bestenfalls 12cm! Im ausgefahrenen Zustand!) erst gar nicht an der Meute Ornithopathen vorbeigetraut. Ich schlafe nach wie vor schlecht deswegen.
+Aus Angst vor einem Lynchmord und jeder Menge Hohn habe ich mich mit meinem Spielzeug-Tele (bestenfalls 12cm! Im ausgefahrenen Zustand!) zuerst gar nicht an der Meute Ornithopathen vorbeigetraut. Ich schlafe nach wie vor schlecht deswegen.
 ![Bild](https://phgo.github.io/blog/images/post12/asset-10.jpg)
 ![Bild](https://phgo.github.io/blog/images/post12/asset-11.jpg)
 ![Bild](https://phgo.github.io/blog/images/post12/asset-12.jpg)
@@ -47,7 +47,7 @@ Nach einer kleinen Panne wurde uns vom Vermieter ein Ersatzfahrzeug zur Verfügu
 ![Bild](https://phgo.github.io/blog/images/post12/asset-17.jpg)
 Strand. Schon wieder. 
 
-#Vermischtes
+# Vermischtes
 
 * Wir ankern gerade in Hervey Bay. Hier starten die Touren nach Fraser Island. Schweren Herzens haben wir uns jetzt gegen einen Besuch von Fraser Island entschieden, da man auf der Insel nur mit Allradfahrzeugen von A nach B und übrigens auch F kommt und das wohl für kleine Menschen im Babysitz arg holprig vonstatten geht. Selbst ein Tourveranstalter meinte, dass er durchaus Interesse an unserem Geld hätte, uns aber aus genanntem Grund davon abraten würde.
 * Der Kilometerstand liegt bei 4900.
