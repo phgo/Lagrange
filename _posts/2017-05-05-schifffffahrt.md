@@ -83,21 +83,21 @@ Innisfail. Eigentlich ein hübsches Städtchen, aber total tote Hose (mal wieder
 ![Bild](https://phgo.github.io/blog/images/post14/asset-36.jpg)
 Gegend.
 ![Bild](https://phgo.github.io/blog/images/post14/asset-37.jpg)
-Wer denkt bei Teeanbau auch nicht sofort an Australien?
+Wer denkt bei Teeanbau nicht sofort an Australien?
 ![Bild](https://phgo.github.io/blog/images/post14/asset-38.jpg)
 ![Bild](https://phgo.github.io/blog/images/post14/asset-39.jpg)
 ![Bild](https://phgo.github.io/blog/images/post14/asset-40.jpg)
 Noch mehr Gegend.
 ![Bild](https://phgo.github.io/blog/images/post14/asset-41.jpg)
-Wir haben tatsächlich auch Schnabeltiere gesehen. Leider nur, bevor ich das Tele aus dem Auto geholt habe. Warum sind die Tierchen auch nur so verflucht klein und weit weg?
+Wir haben tatsächlich Schnabeltiere gesehen. Leider nur, bevor ich das Tele aus dem Auto geholt habe. Warum sind die Tierchen auch nur so verflucht klein und weit weg?
 ![Bild](https://phgo.github.io/blog/images/post14/asset-42.jpg)
 Dann musst du halt aufs Bild!
 ![Bild](https://phgo.github.io/blog/images/post14/asset-43.jpg)
-Curtain Fig Tree. Es gibt schon echt verrückte Sachen. Wir sind heute auch noch eine Runde um einen See gelaufen. Leider ohne Kamera und Mobiltelefone. Dafür hat es richtig geschüttet und wir hatten nachher nasse Hosen. Ich erwähne das aber eigentlich, weil wir dort auch an echt abgefahren verwachsenen und zugewachsenen und verzwirbeltzwurbelten Bäumen vorbeigekommen sind. Und eine Kragenechse (falls es so etwas gibt).
+Curtain Fig Tree. Es gibt schon echt verrückte Sachen. Wir sind heute noch eine Runde um einen See gelaufen. Leider ohne Kamera und Mobiltelefone. Dafür hat es richtig geschüttet und wir hatten nachher nasse Hosen. Ich erwähne das aber eigentlich, weil wir dort auch an echt abgefahren verwachsenen und zugewachsenen und verzwirbeltzwurbelten Bäumen vorbeigekommen sind. Und eine Kragenechse (falls es so etwas gibt).
 
 # Vermischtes
 * Kilometer gefahren: ca. 6800
 * Je weiter wir hier nach Norden kommen, umso öfter werden wir auch Australiern mit erkennbar aboriginalen Wurzeln ansichtig.
-* Wir haben inzwischen tatsächlich auch mal ein paar Australier getroffen, die ein wenig grummelig waren. Das macht hoffentlich die Umstellung auf deutsche Freundlichkeit dann für uns leichter.
-* Es ist wirklich bemerkenswert, was hier an öffentlichen Toiletten und Rastplätzen (mit Barbeque und teilweise sogar Duschen) kostenfrei zur Verfügung steht. Das hängt vielleicht auch damit zusammen, dass auch viele Aussies im mobilen Heim unterwegs sind.
+* Wir haben inzwischen tatsächlich ein paar Australier getroffen, die ein wenig grummelig waren. Das macht uns dann hoffentlich die Umstellung auf deutsche Freundlichkeit leichter.
+* Es ist wirklich bemerkenswert, was hier an öffentlichen Toiletten und Rastplätzen (mit Barbeque und teilweise sogar Duschen) kostenfrei zur Verfügung steht. Das hängt vielleicht damit zusammen, dass auch viele Aussies im mobilen Heim unterwegs sind.
 * Da du dich beschwert hast, liebe Schwester: du bist schon auch sehr doof. Aber der Stocki spielt einfach in einer anderen Liga ... Sorry!
