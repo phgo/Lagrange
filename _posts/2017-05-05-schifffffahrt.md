@@ -17,9 +17,9 @@ Einem Segeltörn auf der Derwent Hunter zum Great Barrier Reef. Und zwar von Air
 ![Bild](https://phgo.github.io/blog/images/post14/asset-2.jpg)
 Besuch am Boot.
 ![Bild](https://phgo.github.io/blog/images/post14/asset-3.jpg)
-Eloise kann sich noch nicht wehren, wenn man sie bei Essen fotografiert. Während ihrer kurzen Amtszeit als Kapitänin hat sie übrigens niemanden über die Planke gehen lassen.
+Eloise kann sich noch nicht wehren, wenn man sie beim Essen fotografiert. Während ihrer kurzen Amtszeit als Kapitänin hat sie übrigens niemanden über die Planke gehen lassen.
 ![Bild](https://phgo.github.io/blog/images/post14/asset-4.jpg)
-Safety First. Vorm Landgang um zweiten Schnorchelspot durften wir diese schicke Schwimmweste anlegen.  Auf dem Bild nicht zu erkennen: die Begeisterung hielt sich zunächst in sehr engen Grenzen.
+Safety First. Vorm Landgang zum zweiten Schnorchelspot durften wir diese schicke Schwimmweste anlegen.  Auf dem Bild nicht zu erkennen: die Begeisterung hielt sich zunächst in sehr engen Grenzen.
 ![Bild](https://phgo.github.io/blog/images/post14/asset-5.jpg)
 Unser Boot (oder Schiff? Was ist eigentlich der Unterschied?) vom Strand aus. 
 ![Bild](https://phgo.github.io/blog/images/post14/asset-6.jpg)
@@ -36,6 +36,9 @@ Das Unentschieden nagt deutlich erkennbar noch an mir.
 Zwar nicht unbedingt auf diesem Bild zu sehen, aber dennoch erwähnenswert. In der Gegend um Airlie Beach waren Spuren des Zyklons noch allgegenwärtig. Neben den teilweise noch nicht reparierten Schäden an Gebäuden, Straßenschildern etc. sahen vor allem die Wälder mitunter extrem gerupft aus. Erst auf den zweiten Blick hat man dann erkannt, wie viele Äste herabhingen oder dass Bäume mitunter komplett entlaubt waren.
 ![Bild](https://phgo.github.io/blog/images/post14/asset-12.jpg)
 Durch extrem entschlossenes Voranschlendern ist es uns geglückt, den Strand noch ohne Menschen abzulichten. Die geschätzt 100 Passagiere der Fähre haben sich dann aber ohnehin ganz gut verteilt.
+![Bild](https://phgo.github.io/blog/images/post14/asset-44.jpg)
+![Bild](https://phgo.github.io/blog/images/post14/asset-45.jpg)
+Hier muss man die Sturmschäden dann nicht mehr direkt suchen.
 ![Bild](https://phgo.github.io/blog/images/post14/asset-13.jpg)
 Burkini. Ich will das so.
 ![Bild](https://phgo.github.io/blog/images/post14/asset-14.jpg)
